@@ -1,5 +1,5 @@
 ### Hi there 👋, Tớ là Chú Bé Đần (Soníc)
-![](https://i.imgur.com/IUjP73g.gif)
+![](https://i.pinimg.com/1200x/8d/4a/e4/8d4ae4fc9be25eac700dc7b5500cf06c.jpg)
 
 Hi, tớ là **Chú Bé Đần (Soníc)**. Cậu đang xem qua thông tin của một kẻ vừa **đẹp trai** vừa **lạnh lùng**. Rất vui được làm quen cùng cậu.
 
